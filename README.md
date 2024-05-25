@@ -7,23 +7,13 @@
 
 <p align="left"> <a href="https://twitter.com/elmurod_sirojiddinov" target="blank"><img src="https://img.shields.io/twitter /follow/elmurod_sirojiddinov?logo=twitter&style=for-the-badge" alt="elmurod_sirojiddinov" /></a> </p>
 
-- 🔭 Men hozir **najot talim o'quv markazi** ustida ishlayapman
-
-- 👯 I' **none** bo‘yicha hamkorlik qilmoqchiman
-
-- 🤝 Men **none** bo‘yicha yordam izlayapman
+- 🔭 Men hozirda **najot talim o'quv markazida** oqiyabman
 
 - 👨‍💻 Barcha loyihalarim [none](none) saytida mavjud
 
-- 📝 Men muntazam ravishda [none” mavzusida maqolalar yozaman ](yo'q)
+- 📫 Men bilan qanday bog'lanish mumkin **elmurod195195@gmail.com** accountim orqali
 
-- 💬 Mendan **taniqli odamlarni qiziqtiradigan yangi loyiha** haqida so'rang
-
-- 📫 Men bilan qanday bog'lanish mumkin **elmurod195195@gmail.com**
-
-- 📄 Tajribalarim haqida biling [none](none)
-
-- ⚡ Qiziqarli fakt **Men musiqa va dasturlashning ba'zi mashg'ulotlariga qiziqaman**
+- ⚡ Qiziqarli fakt **Men musiqa va dasturlashga qiziqaman**
 
 <h3 align="left">Men bilan bog'laning:</h3>
 <p align="left">
